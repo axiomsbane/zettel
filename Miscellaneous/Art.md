@@ -57,3 +57,16 @@ This might read like an incoherent ramble, having started by establishing that I
 At the end, one has to come to terms with the fact that the workings of the world are far too complex to keep up with and make sense of as one grows old. And you say:
 
 > “Okay, I’ll be a part of this world.”
+
+## 4. *Boards of Canada* 
+
+Boards of Canada is a duo that makes electronic music. They're known for their use of obscure sound samples and hidden messages. I hope that I someday get a chance to meet someone who appreciates this sort of music. Its difficult to express in words the feelings evoked by their music. Anywho, I think the only thing I can write down are some of my favorites of theirs and the imagery they invoke in my head: 
+
+- [**Olson**](https://www.youtube.com/watch?v=tpxCkYX8vHQ) : Unending fields of grass with large white clouds in the sky. Its sunny but not too much due to passing clouds.
+- [**Palace Posy**](https://www.youtube.com/watch?v=ov0FAPhRK0c) : Think of a large mechanical thing, something like in Howl's Moving castle. Its post-apocalyptic and the mechanical giant is trodding along, pistons moving up and down, smoke coming out the exhaust pipe. 
+- [**Constants are Changing**](https://www.youtube.com/watch?v=fI_BI0FlhMM) : You're 5 years old, its a Sunday and you're out on a beautiful picnic with your family. Its a comfortable late summer day but the clouds are coming in and its getting darker. A strong breeze blows and as you sit on the picnic bench, you look towards the trees at the edge of the woods and they're swaying vigorously. 
+- [**You Could Feel The Sky**](https://www.youtube.com/watch?v=aFNq9bxm_-Q) : You find yourself in the woods, but you have no idea how you got there. Its dawn and you have no clue where to go, so you walk in the direction of a faint light. Its rhythmic and getting louder. You peek through the bushes and its an opening in the woods and people are dancing around a big fire and singing. The air is getting heavier. You wake up from the nightmare, sweating. Phew! It was just a dream.
+
+## 5. *Plaid*
+
+Similar to Boards of Canada, Plaid are also an electronic music duo. Although, their music definitely feels more abstract as compared to BoC. They composed the music for an anime film called Tekkonkinkreet and it contained two of my favorites of theirs. Namely, ["This City"](https://www.youtube.com/watch?v=JQiphYqJoY8) and ["White's Dream"](https://youtu.be/JQiphYqJoY8?si=NrJMjx1qq5ape34A&t=3099). Its a shame that this soundtrack is not available on Spotify.  
